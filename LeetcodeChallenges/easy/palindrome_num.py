@@ -1,4 +1,5 @@
 # To check if number inputed is the same forwards as it is backwards AKA palindrome
+# x = 121
 
 
 class Solution(object):
@@ -25,4 +26,4 @@ class Solution(object):
                 return False
 
 
-# isPalindrome(x)
+# print(isPalindrome(121))
