@@ -6,3 +6,7 @@ Worked on artifact research and searched for job listings. Fairly laid back day.
 
 6/29-
 First day of the summer break at school. Looking into a new project to add to the porfolio. Hopefully a job will happen one day!
+
+7/6-
+Took the whole week of break to relax. Was AMAZING. Back to the grind. Lets get all these artifacts done by Wed and hopefully cleared by Fri!
+Also looking into the coding challenges services to help with problems I am stuck on since I feel like I do not know anything about about coding challenges. Possibly looking at a teamtreehouse or codeacademy sign up to take their web dev courses to refresh and possible improve my skills because I feel out of touch with JS. Havent dont lots of JS or React in a while...... always try to improve and maintain. 
