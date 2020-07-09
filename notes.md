@@ -13,3 +13,6 @@ Also looking into the coding challenges services to help with problems I am stuc
 
 7/7-
 Finished all artifacts except the portfolio. Will be diving in and hoping to finish that ASAP. Then..... off to coding challenges
+
+7/8-
+Had PC issues most of the day. Planning out what I'd like to do on the portfolio. Need to just dive into it and power through!
