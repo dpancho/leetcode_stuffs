@@ -16,3 +16,6 @@ Finished all artifacts except the portfolio. Will be diving in and hoping to fin
 
 7/8-
 Had PC issues most of the day. Planning out what I'd like to do on the portfolio. Need to just dive into it and power through!
+
+7/9-
+Still had some PC issues today. Super frustrating but I think I will be done soon. 
