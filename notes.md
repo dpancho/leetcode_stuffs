@@ -19,3 +19,6 @@ Had PC issues most of the day. Planning out what I'd like to do on the portfolio
 
 7/9-
 Still had some PC issues today. Super frustrating but I think I will be done soon. 
+
+7/13- 
+Going to just re-do my portfolio. Do not like the current one. Lets create a new one!
