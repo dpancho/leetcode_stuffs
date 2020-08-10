@@ -25,3 +25,6 @@ Going to just re-do my portfolio. Do not like the current one. Lets create a new
 
 8/7-
 Been a while. Got the new portfolio site up and had to take trips to family reunions/ weddings out of town. Will be taking on a project to build a website for Krissy so she can have her own store. It will be a difficult project to do solo but I decided to do it using WordPress initially then work towards building it manually. I have seen some job listings asking for WordPress experience so it could possible help add to the list of skills I have learned over the last year. Sorry for the time off. Get back to work  
+
+8/10-
+Applied to 5 jobs today, Watched 1 hour of Wordpress videos as well. 
