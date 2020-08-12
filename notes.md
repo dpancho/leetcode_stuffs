@@ -28,3 +28,6 @@ Been a while. Got the new portfolio site up and had to take trips to family reun
 
 8/10-
 Applied to 5 jobs today, Watched 1 hour of Wordpress videos as well. 
+
+8/11- 
+Applied to a few more jobs today.  Working on getting Wordpress installed for Krissys site. Used Host Gator to host the site. Going to learn wordpress tomorrow. 
