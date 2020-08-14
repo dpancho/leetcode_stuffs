@@ -31,3 +31,6 @@ Applied to 5 jobs today, Watched 1 hour of Wordpress videos as well.
 
 8/11- 
 Applied to a few more jobs today.  Working on getting Wordpress installed for Krissys site. Used Host Gator to host the site. Going to learn wordpress tomorrow. 
+
+8/13-
+Made a Logo. Updating wordpress site. 
