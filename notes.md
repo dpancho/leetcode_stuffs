@@ -34,3 +34,6 @@ Applied to a few more jobs today.  Working on getting Wordpress installed for Kr
 
 8/13-
 Made a Logo. Updating wordpress site. 
+
+8/25- 
+This weird thing has sorta turned into a blog. But... I have been been very busy outside of school and this and have taken sort of a break. Back at it again. Will do more work once I get some sleep. Have an interview for someone at school today as well. 
