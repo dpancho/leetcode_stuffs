@@ -37,3 +37,6 @@ Made a Logo. Updating wordpress site.
 
 8/25- 
 This weird thing has sorta turned into a blog. But... I have been been very busy outside of school and this and have taken sort of a break. Back at it again. Will do more work once I get some sleep. Have an interview for someone at school today as well. 
+
+8/26- 
+Applied to 6 jobs this morning. I am up super early and hopefully I can stick to this schudule. Plans to apply to at least 5 more jobs today.  Wish me luck on getting interviews!
