@@ -40,3 +40,7 @@ This weird thing has sorta turned into a blog. But... I have been been very busy
 
 8/26- 
 Applied to 6 jobs this morning. I am up super early and hopefully I can stick to this schudule. Plans to apply to at least 5 more jobs today.  Wish me luck on getting interviews!
+
+
+9/16-
+BEEN A LOOOONG TIME. I have been applying like crazy to jobs but no luck yet. I am going to attempt to do cold reachouts on linkedin today. I will be going on udemy style sites to do their web dev courses to keep refreshed and polished. Check back in tomorrow!
